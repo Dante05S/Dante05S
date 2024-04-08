@@ -1,5 +1,5 @@
 # 💫 About Me:
-👾 I’m currently working at Txen<br>👾 I love the programming ❤️<br>👾 Ask me about anything about programming<br>👾 I love to learn new things
+👾 I’m currently working at Gamefort<br>👾 I love the programming ❤️<br>👾 Ask me about anything about programming<br>👾 I love to learn new things
 
 
 ## 🌐 Socials:
